@@ -3,6 +3,7 @@ template: BlogPost
 path: /is-earth-star
 date: 2020-05-19T09:51:57.792Z
 title: Earth is Luminous
+metaDescription: Earth is luminous. My take on it.
 thumbnail: /assets/BeFunky-collage.jpg
 ---
 Have you ever wondered is Earth luminous?
