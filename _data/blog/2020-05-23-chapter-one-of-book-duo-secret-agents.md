@@ -4,7 +4,7 @@ path: /bch1e
 date: 2020-05-23T11:20:26.385Z
 title: Chapter One of Book- Duo Secret Agents
 metaDescription: chapter one of my book one
-thumbnail: /assets/pngtree-chibi-boy-with-glasses-png-image_318105.jpg
+thumbnail: /assets/image-5.jpg
 ---
 CHAPTER ONE 
 
