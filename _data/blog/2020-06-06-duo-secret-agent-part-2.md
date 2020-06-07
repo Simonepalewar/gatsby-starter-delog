@@ -6,8 +6,6 @@ title: Duo Secret Agent Part-2
 metaDescription: The continued part
 thumbnail: /assets/755729.jpg
 ---
-
-
 ### Ace
 
 “Hey! You seem new here” the boy said. “Yup we are new here” I replied in our language that grown-ups can’t understand. Soon we found out the boy was Adam with a very outgoing personality and full of chatter. He was very keen to hang out with us and know us better, I like him already. He suggested that he could show us around a bit and take us to his favorite play arena.
@@ -20,7 +18,7 @@ Me and ace were shivering from the cold, I looked around the room no ACs, how wa
 
 "Adam, don't you feel cold?"I asked. Adam didn't reply, "Adam?"Ace questioned. Still no reply. "ADAM!"I yelled. "Uhh, What did I miss??"Adam uttered "Nothing. You were just knocked out for a second" Ace replied cooly but still shivering. Before we could say anything else the room started to fill with babies of our age and older, wearing tuxedoes, ties, sunglasses and holding some type of zapper or gun or a zapper gun and then everything went black, totally black.
 
-I finally woke up, my arms and neck hurt surprisingly didn't hurt and I wasn't on a chair tied with a rope across my legs or something like that with a big villain sitting in front of me and laughing like a madman it was nothing like that. Instead, I was on a very comfy couch in a huge room with a pleasant smell. I looked at my side the A's were waking up too, I chuckled funnily the two boy's name started with 'A' what a coincident I will call them 'The A's ', I hope that will annoy them. I spotted a ladder in a corner, a big one, I looked up. I was right! there is a duct or something like that there. "We can get out of here!!" I suddenly screamed. "Aww man, I was liking it here!" Adam said. "You are surely a strange person" Ace spoke, "Agreed" I replied. 
+I finally woke up, my arms and neck surprisingly didn't hurt and I wasn't on a chair tied with a rope across my legs or something like that with a big villain sitting in front of me and laughing like a madman it was nothing like that. Instead, I was on a very comfy couch in a huge room with a pleasant smell. I looked at my side the A's were waking up too, I chuckled funnily the two boy's name started with 'A' what a coincident I will call them 'The A's ', I hope that will annoy them. I spotted a ladder in a corner, a big one, I looked up. I was right! there is a duct or something like that there. "We can get out of here!!" I suddenly screamed. "Aww man, I was liking it here!" Adam said. "You are surely a strange person" Ace spoke, "Agreed" I replied. 
 
 Before we could talk more the door opened, A  blonde boy of our age walked in followed by a short red-headed girl. "I see you have woken up." The boy said, he continued "Let me introduce myself as we are not allowed to reveal ourself I must say that I am a secret agent, Agent H, highest of the society and this is my assistant, Agent Ruby" He pointed to his left. "Hello" Ruby said. Adam whispered to me "Good name, suits her. Did you get it? she's red-headed with Ruby as her name and ' Ruby' means red jewel! " I replied "Yeah, I know. I'm not stupid!" 
 
