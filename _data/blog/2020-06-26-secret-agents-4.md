@@ -4,7 +4,7 @@ path: /b4duo
 date: 2020-06-26T10:36:26.501Z
 title: Secret Agents-4
 metaDescription: continued
-thumbnail: ''
+thumbnail: /assets/nemanja-peric-WGpEYwqYPPM-unsplash.jpg
 ---
 #### Ethan
 
